@@ -1,0 +1,2 @@
+# ALLAMAK
+aduh gantengnya
